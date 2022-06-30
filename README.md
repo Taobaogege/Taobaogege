@@ -1,0 +1,4 @@
+- 👋 Hi, I’m a SaaS company's saler
+- 👀 I wonder why there are so many bugs
+- 🌱 I wonder why I wonder why programmers don't understand my words
+- 💞️ So I want to learn computer technology to explore my doubts by myself
